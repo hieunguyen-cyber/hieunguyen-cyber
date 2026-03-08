@@ -1,4 +1,4 @@
-I like goth girl
+I want my wife to be a 7ft russian blonde
 
 <!---
 hieunguyen-cyber/hieunguyen-cyber is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
